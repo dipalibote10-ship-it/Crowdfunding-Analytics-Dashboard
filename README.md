@@ -39,5 +39,7 @@ Feel free to reach out and I’ll be happy to share:
 
 ## Contact
 📧 Email: dipalibote10@gmail.com
+
 🔗 LinkedIn: linkedin.com/in/dipali-bote-6ab024204?
+
 💻 GitHub: (https://github.com/dipalibote10-ship-it)
